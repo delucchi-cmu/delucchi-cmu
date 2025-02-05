@@ -2,8 +2,6 @@
 
 First, it’s duh-LOO-kee. Just like zucchini or Pinocchio.
 
-https://www.andrew.cmu.edu/user/delucchi/
-
 ## A little guide to who I am and how I work
 
 ### I love to write things down
